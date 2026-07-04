@@ -1,0 +1,1 @@
+Use a simple approach will optimize the soltion later
