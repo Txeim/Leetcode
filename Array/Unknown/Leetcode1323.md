@@ -1,0 +1,1 @@
+This is my second time solving this question use chatgpt for the key terms that which method i can use and then i explore the internet then finally got a good solution 
